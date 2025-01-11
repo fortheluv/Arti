@@ -1,2 +1,1 @@
-#Arti 
-😘😘😘
+#Want a dick pic?
