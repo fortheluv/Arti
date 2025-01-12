@@ -1,6 +1,4 @@
-# <h1>Arti</h1>
-
-# Storied Sex timeline.
+# <h1>Storied Sex timeline.</h1>
 
 ![200 (2)](https://github.com/user-attachments/assets/abe00dc0-ea30-478a-adb5-e89a0ee2c498)
 
